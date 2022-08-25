@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **abigailawing@gmail.com**
 
-- ⚡ Fun fact **I can always be there for you when you at your lowest ;)**
+- ⚡ Fun fact **I really like butterflies**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
